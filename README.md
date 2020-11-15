@@ -1,2 +1,1 @@
-AZIZ INCHKA?
-կաղամբ
+ROMANOSSSS
